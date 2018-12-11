@@ -1,2 +1,4 @@
 # personalnotes
-I publish compiled notes here
+I publish some of my compiled materials
+and personal notes here.
+📔👨🏻‍🏫🏫🌉
